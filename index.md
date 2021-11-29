@@ -1,5 +1,5 @@
 # Projector Mobile
-## Contact Info: +79656910480 st. Usacheva, 3 building 1, Moscow, 119048
+## Contact Info: +79619208929, richardjoseph7358@gmail.com
 
 This Application for Smart mini P8 HD Real DLP.
 
